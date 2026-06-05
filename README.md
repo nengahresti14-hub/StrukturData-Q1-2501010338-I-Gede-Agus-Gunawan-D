@@ -1,0 +1,1 @@
+# StrukturData-Q1-2501010338-I-Gede-Agus-Gunawan-D
